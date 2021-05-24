@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Very Nice Day! i am ByeongHoon Lee I am studying app development to become an iOS app developer
+
+I'm from South Korea,
+
